@@ -1,1 +1,1 @@
-# Participatory-Design-of-Information-Systems23
+# Participatory-Design-of-Information-Systems23 (February - April 2023)
